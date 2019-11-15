@@ -1,7 +1,7 @@
-Operation Eagle Strike Force
+Mike was not here D=
+Making another change
+ANOTHER CARLOS INCOMING
 
-Code Names:
-
-Tim: Duke
-Carlos: Snowjob
-Eder : Surly Joe
+tim = spike, mission leader
+carlos= demolitions, quiet, but deadlly
+eder= boo boo, nice guy. looks good in a turtleneck
